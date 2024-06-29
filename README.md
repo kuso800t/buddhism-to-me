@@ -4,5 +4,5 @@
 この言葉自体に抹香臭さはないと僕は信じます。
 興味のある方は、[buddhism-to-me.md](buddhism-to-me.md) をお読みください。
 
-僕は今のところ無神論者ですが、親鸞がなぜ絶賛されるのかについて自分なりに考えてみました。
+僕は今のところ無神論者ですが、親鸞がなぜ絶賛されるのかについても自分なりに考えてみました。
 これについては、[the-six-realms-of-reincarnation.md](the-six-realms-of-reincarnation.md) をお読みください。
